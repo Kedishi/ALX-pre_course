@@ -1,1 +1,1 @@
-Something'bout code... I do hope I get better soonest 
+I am Kedishi Emamanuel Nicholas, I will do great things 
